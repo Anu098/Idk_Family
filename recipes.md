@@ -1,0 +1,1 @@
+There was a boy. There was a girl. They lived with their parents. They were living in a colony namely idk. Girl was idk1, boy was idk2. They lived in a poor family. Now not interested to tell story anymore.
